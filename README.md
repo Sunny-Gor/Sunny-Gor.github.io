@@ -1,1 +1,0 @@
-# Sunny-Gor.github.io
